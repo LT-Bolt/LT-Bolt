@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @LT-Bolt, Radmir Xayrullayev In real life.
+- 👀 I’m interested in: HTML/CSS and JAVA/JavaScript.
+- 🌱 I’m currently learning: CSS/HTML/JavaScript.
+- 💞️ I’m looking to collaborate on: Discord/Telegram.
+- 📫 How to reach me: Telegram: @acidisnolife Discord: @acidisnolife Instagram: @acidisnolife
